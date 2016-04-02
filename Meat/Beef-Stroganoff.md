@@ -1,5 +1,5 @@
-Easy Bread
-==========
+Beef Stroganoff
+===============
 
 Ingredients
 -----------
