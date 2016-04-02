@@ -3,18 +3,18 @@ Easy Bread
 
 Ingredients
 -----------
-*3 cups AP flour
-*1/2 tsp yeast
-*1 tsp salt
-*1 1/2 cups warm (110F) water
+* 3 cups AP flour
+* 1/2 tsp yeast
+* 1 tsp salt
+* 1 1/2 cups warm (110F) water
 
 Optional
 --------
 >Optional ingredients haven't been fully tested. Let me know how it goes. For science.
 
-*4 cloves garlic, roasted and chopped into rough pieces
-*1 tbsp dried rosemary, soaked in water (or fresh)
-*1/4 cup hard cheese, such as asiago
+* 4 cloves garlic, roasted and chopped into rough pieces
+* 1 tbsp dried rosemary, soaked in water (or fresh)
+* 1/4 cup hard cheese, such as asiago
 
 Steps
 -----
