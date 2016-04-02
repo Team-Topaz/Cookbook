@@ -21,7 +21,7 @@ Ingredients
 
 Steps
 -----
-1. Put the butter in a microwave-safe spouted container, such as a glass measuring cup. Melt completely, then let settle until there is a clear line between the milk solids (white) and the fat (yellow). Reserve the fat, discard the solids.
+1. Place the butter in a microwave-safe spouted container, such as a glass measuring cup. Melt completely, then let settle until there is a clear line between the milk solids (white) and the fat (yellow). Reserve the fat, discard the solids.
 2. Salt and pepper the beef.
 3. In a pan at medium-high heat, add half the butter. Heat until meat added to pan sizzles vigorously. Add the beef in small batches, removing to a bowl as it becomes well-browned.
 4. Once all beef is removed, cook shallots and green onion whites in remaining fat. Remove to the beef bowl.
