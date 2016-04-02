@@ -11,6 +11,7 @@ Ingredients
 Optional
 --------
 >Optional ingredients haven't been fully tested. Let me know how it goes. For science.
+
 *4 cloves garlic, roasted and chopped into rough pieces
 *1 tbsp dried rosemary, soaked in water (or fresh)
 *1/4 cup hard cheese, such as asiago
