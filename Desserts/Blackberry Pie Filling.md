@@ -4,7 +4,7 @@ Would probably work for other berries, too... But why would you eat a different 
 
 Ingredients
 -----------
-* 5 cups blackberries, frozen (or other, inferior berries, I guess)
+* 5 1/2 cups blackberries, frozen (or other, inferior berries, I guess)
 * 1 1/4 cups granulated sugar
 * 2 tbsp butter, melted
 * 1/8 tsp salt (omit if your butter is salted)
