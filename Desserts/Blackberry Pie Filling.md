@@ -7,7 +7,6 @@ Ingredients
 * 5 1/2 cups blackberries, frozen (or other, inferior berries, I guess)
 * 1 tbsp lemon juice
 * 2 tbsp butter, melted
-
 * 1 1/4 cups granulated sugar
 * 1/8 tsp salt (omit if your butter is salted)
 * 5 tbsp Cornstarch
