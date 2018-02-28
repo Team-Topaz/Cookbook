@@ -28,3 +28,9 @@ Steps
 6. Add flour, salt, and baking soda until integrated.
 7. Fold in the nuts and chocolate chips.
 8. Bake the 2 tablespoon-sized cookies, sprinkled with sea salt, in a preheated 350F oven for 12-15 minutes, or until golden brown.
+
+Nutrition
+---------
+You probably don't want to know.
+* Dough: 1g = 4.13 calories
+* Cookie = 2tbsp dough = 58g = 240 calories
