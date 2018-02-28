@@ -33,4 +33,4 @@ Nutrition
 ---------
 You probably don't want to know.
 * Dough: 1g = 4.13 calories
-* Cookie = 2tbsp dough = 58g = 240 calories
+* Cookie = 2tbsp dough = 58g = 240 calories = 40g cookie = 5.9 calories/g
