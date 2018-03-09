@@ -1,10 +1,10 @@
 Ryan's Tikka Masala
 =======================================
-Okay, so it's a rough draft. It was better the last time, and I'm working on it, OK?
+Okay, so it's a rough draft. It was better the last time, and I'm working on it. Sometimes you just get lucky once and not the next time, which is frustrating!
 
 Ingredients
 -----------
-* 2tbsp curry powder
+* 2 tbsp curry powder
 * 1 tsp garlic powder
 * 1 tsp cinnamon
 * 1 tbsp salt
