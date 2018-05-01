@@ -1,6 +1,6 @@
 Baked Mac and Cheese
 =======================================
-No, the other kind of baked
+No, the other kind of baked. NOTE: Something in this recipe is Not Right - there's way too much sauce for the pasta. Consider making a minimum of 1 lb pasta instead of the called-for amount.
 
 Ingredients
 -----------
