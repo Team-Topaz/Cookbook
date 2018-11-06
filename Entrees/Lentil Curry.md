@@ -25,6 +25,6 @@ Steps
 4. Add 2 tbsp curry powder. Cook, stirring frequently until curry powder is fragrant.
 5. Add lentils, water, and diced tomatoes. Add salt and pepper to taste. Bring to a boil.
 6. Reduce heat to medium-low. Simmer until lentils are soft, about 30 minutes.
-7. While curry is cooking, process chickpeas, lemon juice, 1/4 cup water, 2 tbsp olive oil, and garlic in a food processor.
+7. While curry is cooking, process chickpeas, lemon juice, 1/4 cup water, 2 tbsp olive oil, remainder of curry powder, and garlic in a food processor.
 8. When lentils are soft, add garbanzo beans and butter to pot.
 9. Serve with basmati rice.
