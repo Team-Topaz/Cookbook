@@ -23,7 +23,7 @@ Frosting
 
 Steps
 -----
-1. Cream together butter and sugar.
+1. Cream together softened butter and sugar.
 2. Add milk, egg, and vanilla. Mix well.
 3. Add the rest of the cookie ingredients and combine.
 4. Roll to 1/2" thickness and cut with cookie cutters.
