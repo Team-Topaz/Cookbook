@@ -20,6 +20,7 @@ Frosting
 * 1 teaspoon vanilla
 * 3 cups powdered sugar
 * Food coloring
+* 3 tbsp water
 
 Steps
 -----
