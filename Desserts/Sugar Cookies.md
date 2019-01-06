@@ -20,7 +20,7 @@ Frosting
 * 1 teaspoon vanilla
 * 3 cups powdered sugar
 * Food coloring
-* 3 tbsp water
+* 1/4 cup water
 
 Steps
 -----
@@ -29,5 +29,5 @@ Steps
 3. Add the rest of the cookie ingredients and combine.
 4. Roll to 1/2" thickness and cut with cookie cutters.
 5. Bake at 350 degrees for 8-10 minutes.
-6. For frosting, cream together butter, vanilla, and powdered sugar.
+6. For frosting, cream together butter, vanilla, water, and powdered sugar.
 7. Frost cookies once cookies are cooled.
