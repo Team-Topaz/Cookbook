@@ -23,7 +23,7 @@ Steps
 2. Mix the first 4 ingredients together in a bowl.
 3. Roll the cinnamon mixture into a thin sheet between two sheets of parchment paper.
 4. Remove the top sheet of parchment paper and bake the cinnamon mixture for 40 minutes on a baking sheet.
-5. Remove the cinnamon mixture and let cool completely. Chop or break apart into small chunks. Turn off oven.
+5. Remove the cinnamon mixture from oven. Turn off oven. Let the cinnamon mixture cool partially, then fold it in half (so it ends up twice as thick). Cool completely. Chop or break apart into small chunks.
 6. In a medium bowl, mix water and yeast until the yeast dissolves.
 7. Add sugar, egg, oil, and 1 cup flour and mix until incorporated.
 8. Add salt and remainder of flour, reserving a small amount of flour. Mix until combined.
