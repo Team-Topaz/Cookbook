@@ -5,7 +5,7 @@ A soft bread with cinnamon chips!
 Ingredients
 -----------
 * 1/2 cup sugar
-* 3 teaspoons ground cinnamon
+* 1 tablespoon ground cinnamon
 * 1 1/2 tablespoons butter, softened
 * 1 1/2 tablespoons light corn syrup
 * 2 1/4 teaspoons yeast
