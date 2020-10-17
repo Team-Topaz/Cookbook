@@ -15,7 +15,7 @@ Ingredients, Filling
 * 5 cups blackberries (or so - enough to almost fill your baking pan)
 * 1.5 tbsp cornstarch or tapioca
 * 1 tsp cinnamon
-* 3/4 cup granulated sugar
+* 1/3 cup granulated sugar
 
 Steps
 -----
