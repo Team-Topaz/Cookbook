@@ -19,7 +19,7 @@ Ingredients
 Frosting Ingredients
 --------------------
 * 8 oz (one package) cream cheese, room temperature
-* 8 oz (two sticks) butter
+* 8 oz (two sticks) butter - one should be room temperature.
 * 2 tsp water
 * 2 tsp vanilla
 * 4 cups powdered sugar
@@ -36,8 +36,8 @@ Steps
    1. In a small saucepan over medium heat, melt the butter.
    1. Stirring frequently, cook the butter until it has a light brown color and smells nutty.
    1. Remove the butter from heat. Let cool to room temperature before continuing.
-   1. Mix the butter and cream cheese in a large bowl until smooth and uniform in color.
-   1. Add the water and vanilla, then add the powdered sugar in increments, mixing between each addition.
+   1. Mix the butter, browned butter, and cream cheese in a large bowl until smooth and uniform in color. If possible, use a stand mixer with a whisk attachment. Beat until as smooth as possible.
+   1. Add the water and vanilla, then add the powdered sugar in increments, mixing between each addition. It should be fluffy when you're done.
 8. Remove the cake from the oven. Let the cakes cool completely in the refrigerator before attempting to remove them from the pans.
 9. Frost the cake.
 
