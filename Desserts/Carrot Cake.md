@@ -33,11 +33,11 @@ Steps
 5. Evenly distribute the batter between the two pans.
 6. Bake for 40-50 minutes, until a toothpick inserted in the middle comes out clean.
 7. While the cake is baking, prepare the frosting:
-  1. In a small saucepan over medium heat, melt the butter.
-  1. Stirring frequently, cook the butter until it has a light brown color and smells nutty.
-  1. Remove the butter from heat. Let cool to room temperature before continuing.
-  1. Mix the butter and cream cheese in a large bowl until smooth and uniform in color.
-  1. Add the water and vanilla, then add the powdered sugar in increments, mixing between each addition.
+   1. In a small saucepan over medium heat, melt the butter.
+   1. Stirring frequently, cook the butter until it has a light brown color and smells nutty.
+   1. Remove the butter from heat. Let cool to room temperature before continuing.
+   1. Mix the butter and cream cheese in a large bowl until smooth and uniform in color.
+   1. Add the water and vanilla, then add the powdered sugar in increments, mixing between each addition.
 8. Remove the cake from the oven. Let the cakes cool completely in the refrigerator before attempting to remove them from the pans.
 9. Frost the cake.
 
