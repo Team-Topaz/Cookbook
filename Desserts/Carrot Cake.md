@@ -12,7 +12,7 @@ Ingredients
 * Generous grating of fresh nutmeg
 * 1.5 cups sugar
 * 3 eggs
-* 1 cup butter, melted
+* 1 cup vegetable oil
 * 3 cups grated carrots
 * 1 cup chopped walnuts
 
@@ -40,3 +40,7 @@ Steps
   1. Add the water and vanilla, then add the powdered sugar in increments, mixing between each addition.
 8. Remove the cake from the oven. Let the cakes cool completely in the refrigerator before attempting to remove them from the pans.
 9. Frost the cake.
+
+Varations
+---------
+- Cupcakes: Make as before, but add the batter to a lined muffin tin, 1/4 cup each. Bake at 350F for about 24 minutes.
