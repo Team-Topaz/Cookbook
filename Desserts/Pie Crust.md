@@ -13,12 +13,12 @@ Ingredients
 Steps
 -----
 1. Preheat the oven to 375F.
-    1. Optional: Place an upside-down cookie sheet on the rack where you'll be baking the pie.
+1. Optional: Place an upside-down cookie sheet on the rack where you'll be baking the pie.
 2. Cut two sticks of butter into small cubes - usually, I cut into quarters lengthwise, then into equal size bits. Put the butter cubes in the freezer for now.
 3. In a food processor, add 2 cups flour and 1/2 cup salt. (If you don't have a food processor, a bowl with a pastry cutter is OK)
 4. While the butter chills, prepare a few things:
-  1. Put a handful of icecubes in a bowl, then add water.
-  2. Get out your rolling pin, pie tins, and make sure you've floured your cutting board.
+    1. Put a handful of icecubes in a bowl, then add water.
+    2. Get out your rolling pin, pie tins, and make sure you've floured your cutting board.
 5. Add butter to flour/salt mixture. Pulse the food processor until the butter is well cut-up. It should look a bit "grainy" still.
 6. Add about 8 tbsp of your ice water to the dough and mix the ball with your hands - if you're using a food processor, you might need to do this in another bowl or on your cutting board. It should just barely come together. If it's not sticky enough, add ice water up to 1 tbsp at a time.
 7. Roll out the dough.
