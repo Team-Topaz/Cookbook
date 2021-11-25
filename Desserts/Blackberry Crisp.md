@@ -1,6 +1,6 @@
 Blackberry Crisp
 =======================================
-You can swap out the fruit for whatever you've got - just 
+You can swap out the fruit for whatever you've got.
 
 Ingredients, Topping
 -----------
