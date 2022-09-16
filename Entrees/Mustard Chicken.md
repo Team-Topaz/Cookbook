@@ -13,6 +13,8 @@ Ingredients
 * Black pepper to taste
 * 1 tbsp tarragon
 * 1 tbsp majoram
+
+If not making it to share with Eric:
 * Bunch of green onions, chopped
 * 2 tsp garlic powder
 * 2 tsp onion powder or dehydrated onion
