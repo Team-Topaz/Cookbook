@@ -21,15 +21,23 @@ Frosting
 * 1 stick softened butter
 * 1 teaspoon vanilla
 * 3 cups powdered sugar
-* Food coloring
 * 1/4 cup water
+* Food coloring
+
 
 Steps
 -----
 1. Cream together softened butter and sugar.
 2. Add milk, egg, and vanilla. Mix well.
-3. Add the rest of the cookie ingredients and combine. If dough is still sticky, it may need an extra 1/2 cup of flour.
+3. Add the rest of the cookie ingredients and combine. If dough is still sticky, it may need up to an extra 1/2 cup of flour.
 4. Roll to 1/2" thickness and cut with cookie cutters.
 5. Bake at 350 degrees for 8-10 minutes.
 6. For frosting, cream together butter, vanilla, water, and powdered sugar.
-7. Frost cookies once cookies are cooled.
+7. Divide frosting amongst smaller bowls before adding food coloring.
+8. Frost cookies once cookies are cooled.
+
+Notes
+-----
+* One batch of cookies requires ~3/4 batch of frosting
+
+
