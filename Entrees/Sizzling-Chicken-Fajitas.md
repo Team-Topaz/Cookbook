@@ -8,9 +8,9 @@ A family favorite submitted to Cooking Light
 * 1/4 teaspoon black pepper
 * 1 1/2 pounds skinless, boneless chicken breasts
 * 1 tablespoon canola oil
-* 1 cup green bell pepper strips (about 1 medium)
-* 1 cup red bell pepper strips (about 1 medium)
-* 1 cup vertically sliced red onion
+* 2 green bell pepper cut into strips
+* 2 red bell pepper cut into strips
+* 2 vertically sliced red onions
 * 1 teaspoon seasoned salt
 * 6 flour tortillas
 * salsa
