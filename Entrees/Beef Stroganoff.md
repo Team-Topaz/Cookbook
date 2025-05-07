@@ -3,7 +3,7 @@ Beef Stroganoff
 
 Ingredients
 -----------
-* 2 lbs beef, sliced into thin, bite-sized pieces (Ground beef is OK too. You heathen.)
+* 2 lbs beef - either ground or sliced into thin, bite-sized pieces
 * 1 stick butter
 * 1 tsp salt
 * 1 tsp pepper
@@ -27,7 +27,7 @@ Steps
 4. Once all beef is removed, cook shallots and green onion whites in remaining fat. Remove to the beef bowl.
 5. Add the remainder of the butter. Working in batches, add mushrooms to pan and brown well. Either push cooked mushrooms to side of pan or remove to a bowl.
 6. Reduce heat to medium. Add flour and mix with remaining juices in pan. Cook for 1 minute, stirring.
-7. Return all cooked ingredients to pan. Add beef broth, mustard, and nutmeg. Simmer for 1 hour or until beef is tender.
+7. Return all cooked ingredients to pan. Add beef broth, mustard, and nutmeg. Simmer until beef is tender, or at least 20 minutes.
 8. 5 minutes before serving, add sour cream and wine. Simmer at a very low temperature to avoid curdling your sour cream. Thin with additional beef broth, as needed.
 9. Add salt and pepper, to taste.
 10. Top with green onions and serve with buttered egg noodles.
